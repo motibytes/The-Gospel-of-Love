@@ -7,7 +7,7 @@ A radically fresh and dangerously controversial reinterpretation to the words of
 [About the Author](#about-the-author) 
 [About this Work](#about-this-work) 
 [Love is Near](#love-is-near) 
-[Love's Call](#love's-call) 
+[Love's Call](#loves-call) 
 [Love Beatitudes](#love's-beatitudes) 
 [Love's Commands](#love's-commands) 
 [Love Giving](#love-giving) 
