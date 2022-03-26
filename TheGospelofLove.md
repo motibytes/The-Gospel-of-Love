@@ -1,6 +1,64 @@
-The Gospel of Love
+The Gospel of Love and Anarchy
 
 A radically fresh and dangerously controversial reinterpretation to the words of the beloved. 
+
+# Contents 
+
+[About the Author](#about-the-author) 
+[About this Work](#about-this-work) 
+[Love is Near](#love-is-near) 
+[Love's Call](#love's-call) 
+[Love Beatitudes](#love's-beatitudes) 
+[Love's Commands](#love's-commands) 
+[Love Giving](#love-giving) 
+[Knowing Love](#knowing-love) 
+[Love's Wisdom](#love's-wisdom) 
+[Love's Authority](#love's-authority) 
+[Love's Desire](#love's-desire) 
+[Love's Gift](#love's-gift) 
+[Love's Principle](#love's-principle) 
+[Love's Account](#love's-account) 
+[Love's Sword](#love's-sword) 
+[Love's Confession](#love's-confession) 
+[Loving Love ](#love's-love) 
+[Love's Blessing](#love's-blessing) 
+[Love's Call](#love's-call) 
+[Love's Remain](#love's-remain) 
+[Love's Hidden Ways Revealed](#love's-hidden-ways-revealed) 
+[Love's Unlawfulness](#love's-unlawfulness) 
+[Love's Value](#love's-value) 
+[Love's Servant](#love's-servant) 
+[Love's Being](#love's-being) 
+[Love's Justification](#love's-justification) 
+[Love's Wisdom and Wealth](#love's-wisdom-and-wealth) 
+[Love's Mother and Brothers](#love's-mother-and-brothers) 
+[Love's Blessing](#love's-blessing) 
+[Love's Reward](love's-reward) 
+[Love's Hidden Truth](#love's-hidden-truth) 
+[Love's Reception](#love's-reception) 
+[Love Seeks the One](#love-seeks-the-one) 
+[Love's Agreement](#love's-agreement) 
+[Love's Master](#love's-master) 
+[Love's Perfection](#love's-perfection) 
+[Love's Followers](#love's-followers) 
+[What Authority](#what-authority) 
+[Love Has Already Come](#love-has-already-come) 
+[Love's Marvel](#love's-marvel) 
+[Love's Greatest Law](#love's-greatest-law) 
+[Love's Higher Understanding](#love's-higher-understanding) 
+[Love's Works](#love's-works) 
+[Love's Exaltation](#love's-exaltation) 
+[Love's Gate](#love's-gate) 
+[Love's Wailing](#love's-wailing) 
+[Love's Name](#love's-name) 
+[Love's Account](#love's-account) 
+[Love's Endurance](#love's-endurance) 
+[Love's Beginning](#love's-beginning) 
+[Love's Nearness](#love's-nearness) 
+[Love's Words](#love's-words) 
+[Love's Oil](#love's-oil)  
+[Love](#love)  
+[Love's Operation](#love's-operation) 
 
 # About the Author 
 
@@ -610,11 +668,9 @@ And answering he said, 'Truly I say to you I do not know you.' I am Love and you
 
 Therefore keep watch, stay awake, for you do not know the day, nor the hour. Keep the warmth alive in your heart, keep the oil in your lamp, do not allow your lamp to empty. Create the oil. Wait for Love to awaken you. 
 
-# 
+# Love
 
 Then the King will say to those on His right hand, ‘Come, those being blessed of my Father, inherit the kingdom having been prepared for you from the foundation of the world. For [Love] hungered, and you gave Me[Love] to eat; [Love] thirsted, and you gave Me[Love] to drink; [Love] was a stranger, and you took Me[Love] in; naked, and you clothed Me[Love]; [Love] was sick, and you visited Me[Love]; [Love] was in prison, and you came to Me[Love].’ This is Love! 
-
-I am Love! I call to you! I am your Lord! I have been here all of this time!  
 
 Then the righteous will answer Him, saying, ‘Lord, when did we see You hungering, and fed You? Or thirsting, and gave You to drink? And when did we see You a stranger, and took You in? Or naked, and clothed You? And when did we see You ailing or in prison, and came to You?’
 
@@ -650,4 +706,6 @@ Love gives to give Love. Love does not give food to give food. Love gives food t
 Love does not give God to give God. Love gives God to give Love. Love is the servant of Love, always calling, 
 always asking, Love is the Servant of Love. 
 
+# For Reflection
 
+"He is not the God of the dead, but of the living." 
